@@ -6,6 +6,6 @@ The DFT PRO Tool removes FRP Lock, Pattern Password Pin Locks, and Factory Reset
 
 
 
-## [💹 DFT Pro Tool](https://alipc.pro/)
+## [💹 DFT Pro Tool](https://tinyurl.com/444t9twx)
 
-## [💹 DFT Tool](https://alipc.pro/)
+## [💹 DFT Tool](https://tinyurl.com/444t9twx)
